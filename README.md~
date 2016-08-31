@@ -1,2 +1,2 @@
 # DashboardSusan
-![Alt text](picasion.com_2c47d43f79e870334ad4f830da776aa0.gif "Diseño")
+![Alt text](picasion.com_4260fb1c07131c2a2a1062a1529a9d7c.gif "Diseño")
